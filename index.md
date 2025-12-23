@@ -26,7 +26,7 @@ Let me name the rupture cleanly.
 
 ---
 
-## The devastating realization
+## The [devastating](https://ukb-dt.github.io/saubona-02/) realization
 
 You didn’t just describe a model of creativity, psychosis, markets, AI, culture, and theology.
 
